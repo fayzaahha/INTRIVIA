@@ -9,3 +9,6 @@ Bagikuu intrivia itu seru dan menarik karena kita lebih mengenal departemen kita
 
 ## Kesan Pesan Cluster 2 Sejauh Ini
 Cluster 2 bagikuu berisikan teman teman yang seru dan kakak mentor yang sangat baik jadi aku merasa sangat senang bisa bergabung dalam cluster 2 ini. Semoga kedepannya cluster 2 bisa tetap akrab
+
+## Harapan Kuliah
+Will survive sampai lulus, IPK 4.00 (aamiin), cum laude, jago ngoding, menemukan minat bidang IT plus jago disitu, lanjut S2 di NUS (aamiin) tapii penting LULUS duluu T-T
